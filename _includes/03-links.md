@@ -1,1 +1,1 @@
-[GitHub](https://github.com/Lamourio)
+[My GitHub account](https://github.com/Lamourio)
